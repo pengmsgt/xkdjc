@@ -1,6 +1,11 @@
 欢迎访问开云体育网址入口线路！我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [http://www.socialbookmarkssite.com/user/venghk/](http://www.socialbookmarkssite.com/user/venghk/)
+- [https://social.find.com/venghk](https://social.find.com/venghk)
+- [https://lwccareers.lindsey.edu/profiles/4527227-peng-hung](https://lwccareers.lindsey.edu/profiles/4527227-peng-hung)
+- [https://lwccareers.lindsey.edu/profiles/4224436-kim-peng](https://lwccareers.lindsey.edu/profiles/4224436-kim-peng)
+- [http://80.82.64.206/user/venghk](http://80.82.64.206/user/venghk)
 - [https://www.palscity.com/venghk](https://www.palscity.com/venghk)
 - [https://mimedia.in/1713000109863753_16343](https://mimedia.in/1713000109863753_16343)
 - [https://6giay.vn/members/pengmskim.53580/](https://6giay.vn/members/pengmskim.53580/)
